@@ -7,7 +7,7 @@ Jennifer Huck
 
 Orginial Cav Daily Database:
 
-* none yet
+* https://www.cavalierdaily.com/page/faculty-salary-2018 (says 2018-2019)
 
 Cav Daily Articles: 
 
